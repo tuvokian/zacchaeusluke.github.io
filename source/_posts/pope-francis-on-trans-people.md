@@ -1,0 +1,19 @@
+---
+title: 'Pope Francis on trans people'
+date: 'Thu, 19 Feb 2015 22:05:47 +0000'
+---
+I was encouraged to read reports of <a href="http://www.washingtonblade.com/2015/01/25/transgender-man-private-audience-pope-francis/" target="_blank">Pope Francis welcoming a trans man</a> to a private audience last month. The man had experienced discrimination in his home church and had written to the Pope for support. What exactly took place during the private audience and what was said seems to have been kept private, and so instead there was a lot of speculation on whether this signifies a change in the Church's position on trans people.
+
+Today it has emerged that <a href="http://www.gaystarnews.com/article/pope-francis-compares-trans-people-nuclear-weapons190215" target="_blank">Pope Francis has made some comments</a> about so called 'gender theory' in a new book. He compares it to nuclear weapons, saying that they both do not recognise the 'order of creation'. To compare trans people and different ways of thinking about gender to nuclear weapons is horrific, and a gross misrepresentation.
+
+To be honest here, I think transphobes would make a better comparison to nuclear weapons. In the same way that nuclear weapons have the potential to take hundreds of lives, transphobic views, conversion therapy and poor access to proper medical care contribute to, if not directly cause, the deaths of trans people.
+
+The Catholic Church's position on transgender people is slightly more difficult to discern than their position on homosexuality. In the case of homosexuality the Church very firmly teaches that although being gay is not a sin in and of itself, homosexual acts are sinful. A gay person is expected to lead a life of celibacy unless they marry someone of the 'opposite sex'. Apart from some leaked church documents there isn't really  a great deal on the topic of people who transition to live in a different gender to the one they were assigned at birth.
+
+A great deal of the Church's teaching revolves around the fact that God created two genders, male and female, and your body determines your gender. The belief is that to go against what your body is 'saying', and to change your body, is to go against God's creation. It's not a new concept, Pope Francis has just reiterated it, with the unfortunate comparison to nuclear weapons.
+
+As there isn't clear guidance, unfortunately how trans people are treated in Catholic churches can vary wildly, and there isn't a consistent approach that is used in ministering to trans people. The Church teaches love and welcome to all, but all too often this isn't people's experience. Even a binary trans person would be barred from getting married in a Catholic Church, because they would be deemed too 'confused' or 'disordered', and would always be considered by the Church to be the sex they were assigned at birth.
+
+I've been lucky to meet many supportive Catholics, including several priests. There are varied views throughout the Church, and my goal has always been to seek out like-minded people who accept me for who I am.
+
+While many people decided to idolise Pope Francis, I have been reserving judgement. Yes, he seems better and somewhat more open minded than previous Popes, and certainly seems to be doing a better job of showing Christ's love to the poor and marginalised, but he's still Catholic. He's not about to completely change Church doctrine, and sadly I never expected him to. His recent comments simply reflect the state of current Church teaching, and a lot of change in how the Church thinks of gender would need to happen in order for things to progress.

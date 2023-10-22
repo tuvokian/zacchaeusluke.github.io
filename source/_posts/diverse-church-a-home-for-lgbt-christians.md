@@ -1,0 +1,18 @@
+---
+title: 'Diverse Church: a home for LGBT+ christians'
+date: 'Sun, 01 Mar 2015 14:45:08 +0000'
+tags:
+---
+Last summer a friend introduced me to an organisation called <a href="http://diversechurch.org.uk/" target="_blank">Diverse Church</a>. It's a group for young LGBT+ Christians aged 18-30 to get to know and support each other. Our biggest way to connect has been via a private facebook group, which is very active with people posting prayers requests, links to articles and worship songs. There is also a public <a href="https://twitter.com/Diverse_Church" target="_blank">twitter</a>, where every friday a member of DC shares their story. It's always extremely moving and definitely worth following for. In addition to this there is a public facebook group called <a href="https://www.facebook.com/groups/266684290183607/" target="_blank">Diverse Church Friends</a>, for supporters of DC.
+
+Last week we had a national meetup here in Sheffield, with people travelling from all over the UK. It was absolutely amazing. I've spent so long feeling like I don't quite fit into any community, either because of my gender identity or sexuality, or because of my faith, and at times it's felt very isolating. To meet so many other people like me who have also felt this isolation and even rejection from churches, really helped and I felt so at home.
+
+We spent a great afternoon at the Cathedral, where we were welcomed by the Dean and two other canons. I was quite amazed by this, they knew we were gay and they served us tea, and listened to our stories. They showed us love in a way I've come not to automatically expect from churches.
+
+Often in church sexuality and gender identity are not spoken about, and ignored, leaving it unclear as to whether I would still be completely welcome if I were to disclose that information. Or when I do talk about it, it is often met with uncomfortable looks, and swift moves onto other topics. When these topics are discussed it's usually not in a positive light, for instance advertising petitions against gay marriage. I think it's important to break the silence, to let people in your church know that you love them, and that they can talk about their lives in the same intimate way everyone else does. Mentioning partners and everyday struggles, and asking for prayer. It's important to let everyone know that they are as much a part of the community as everyone else.
+
+I've not had a terribly awful experience of church, and there have only been a few occasions when I have felt extremely uncomfortable. I'm generally quite open and honest, and have an attitude that I am beyond caring if people have a problem with it. I think it also helps that I don't really feel massively called at the moment to serve in church, and I may face more problems if and when I try to get involved more fully.
+
+Hearing other people's stories last weekend was absolutely heartbreaking. Stories of secrecy in order to continue serving in their church, and stories of extreme rejection when they were honest. Stories of people doing their utmost to live a celibate chaste life, and it still not being enough, and stories of people who had vicious rumours spread about them.
+
+I can only hope that the church continues to grow and change, to live up to the gospel more and more, showing love to the marginalised. Society has definitely changed for the better, and now the church needs to as well. Diverse Church is a great place for people to be themselves, and completely open about who they are, without fear. It is a mixed community of people from all different traditions and I think I'd struggle to find anywhere so loving and accepting.
