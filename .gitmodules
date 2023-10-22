@@ -1,0 +1,3 @@
+[submodule "themes/zac"]
+	path = themes/zac
+	url = https://github.com/zacchaeusluke/hexo-theme-zac.git
