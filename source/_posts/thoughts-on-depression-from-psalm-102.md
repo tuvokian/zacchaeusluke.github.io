@@ -26,7 +26,7 @@ Some days you wake up and you are so tired you can feel it deep in your bones. T
 
 It can feel like I have stopped caring, my heart has shrivelled up and I'm no longer able to feel. I go numb and I start to disconnect. 
 
-I have already talked in <a href="http://wp.me/p5INdl-28">a previous post</a> about how my depression can affect my eating habits. 
+I have already talked in a previous post about how my depression can affect my eating habits. 
 
 "Like an owl among ruins". This feels symbolic of me looking out over my life and thinking that it hasn't gone too well. That I've messed things up. In the depths of my depression I have felt that there is no hope, and everything is forever ruined. I know now that that is not the case, but I can still sometimes feel that lonly feeling of being alone in a wilderness.
 

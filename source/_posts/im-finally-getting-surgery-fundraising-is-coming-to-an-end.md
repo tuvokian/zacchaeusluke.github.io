@@ -6,7 +6,7 @@ tag:
 - craft
 ---
 
-I set up [Zacchaeus Crafts](https://craft.zacchaeus.co.uk) in April last year to try to fundraise for a hysterectomy. At this time I've raised nearly £2000 and I am so grateful to everyone who's contributed by donating, sharing and supporting me.
+I set up Zacchaeus Crafts in April last year to try to fundraise for a hysterectomy. At this time I've raised nearly £2000 and I am so grateful to everyone who's contributed by donating, sharing and supporting me.
 
 Back in November 2017 I had an appointment for my second opinion for surgery. Following this I was eventually referred to the local hospital for a hysterectomy. A couple of weeks ago I had a consultation with the gynaecologist and I am now expecting to have the surgery in September. 
 

@@ -90,5 +90,3 @@ Another time, I was in the toilets of a club and drying my hands when a man came
 These kind of incidents are hard to report and I wouldn’t know who to report them to. They are not emergency situations and I feel it’s unlikely anyone would be prosecuted, but they made me feel very unsafe.
 
 I have also had occasions where I have had things shouted incoherently at me on the street like ‘freak’ and I’ve been unsure whether they were addressed at my because of my gender presentation or just my general appearance.
-
-&nbsp;
