@@ -7,7 +7,7 @@ tag:
 
 <a href="http://www.imdb.com/title/tt4158624/">About Ray</a> is an upcoming film about a young trans boy who is just beginning their transition, and follows his journey as his family come to terms with it. From the trailer (below) it actually looks like it could be a really good, positive film, which tackles some of the interesting and realistic difficulties faced by trans teens.
 
-[About Ray Movie Trailer](http://www.youtube.com/watch?v=48B9wSy4kPg)
+{% youtube 48B9wSy4kPg %}
 
 However, once again the director has decided to cast a cis actress in the lead role. Now normally this would just make me roll my eyes in disgust and move on, but I found the <a href="http://www.refinery29.com/2015/08/92441/about-ray-elle-fanning-poster">justification given by director Gaby Dellal</a> downright offensive.
 
