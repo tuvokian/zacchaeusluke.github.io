@@ -13,3 +13,15 @@ This is the source code for my personal website, powered by [Hexo](https://hexo.
 ├── _config.yml     # Main Hexo configuration file
 ├── package.json    # Project dependencies and scripts
 ```
+
+## Development
+
+To get started with development with Hexo install the Hexo CLI: 
+```
+npm install -g hexo-cli
+```
+
+To run the development server:
+```
+hexo server
+```
