@@ -1,0 +1,7 @@
+[
+    {
+       "name":"n8n-nodes-html-to-image",
+       "url":"https://github.com/tuvokian/n8n-nodes-html-to-image",
+       "desc":"An n8n community node to convert HTML code to images in n8n workflows."
+    }
+]
